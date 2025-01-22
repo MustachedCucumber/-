@@ -6,14 +6,16 @@ i have NO FRICKIN' IDEA how this site works honestly, i just made it for pony to
 
 
 🪷 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍 𝐈𝐍𝐅𝐎
+
 • i'm totally okay with any kind of touching, and by that i mean booping, cuddling, kissing, covering and stuff like that, it's actually so wholesome PLEASE DO IT RAHHHHH
 
 • wanna copy my skin? i don't mind it either, just inflating my ego a bit, cuz it means that ya like my skin so yeahhh
 
-• and finally 'bout chatting with me, i'm okay with just simply saying "hello", complimenting my skin or stuff like "OMG A *insert some media* FAN!!!!" but i'm not open for any longer chats and especially not for making friends, if i see anyone trying to chat about something with me or befriend me, i'm jusy gonna disappear, and nuh uh, there are no exceptions ;] i just have my reasons, don't take it personally.
+• and finally 'bout chatting with me, i'm okay with just simply saying "hello", complimenting my skin or stuff like "OMG A *insert some media* FAN!!!!" but i'm not open for any longer chats and especially not for making friends, if i see anyone trying to chat about something with me or befriend me, i'm just gonna disappear, and nuh uh, there are no exceptions ;] i just have my reasons, don't take it personally.
 
 
 🪷 𝐈𝐍𝐅𝐎 𝐀𝐁𝐎𝐔𝐓 𝐌𝐄!
+
 • i'm 17 y/o, she/her pronouns but you can use literally any pronouns tbh
 
 • PROBABLY (help i'm really not sure about this stuff) ENTP 3w4 SLOEI choleric-melancholic (or mel-chol IDK 😭😭)
