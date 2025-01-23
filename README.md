@@ -73,6 +73,6 @@ i have NO FRICKIN' IDEA how this site works honestly, i just made it for pony to
 • The Collector from TOH
 
 
-OKAYYY I THINK THAT'S ALL FOR NOW, ALSO I HAVE NO IDEA GOW TO CHANGE MY PFP HERE HELP 😭
+OKAYYY I THINK THAT'S ALL FOR NOW
 BUT ANYWAYS, THANKS FOR READING, YOU CAN ALSO FIND ME ON TT: @martlegs 
 (mostly posting about AHIT and UTY, i'm obsessed with these two!) 
