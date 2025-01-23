@@ -7,11 +7,15 @@ i have NO FRICKIN' IDEA how this site works honestly, i just made it for pony to
 
 🪷 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍 𝐈𝐍𝐅𝐎
 
+• i'm usually online everyday for a couple of minutes, just wandering around/sitting somewhere, hoping to find someone from my fandoms to boop 'em and compliment their skin
+
 • i'm totally okay with any kind of touching, and by that i mean booping, cuddling, kissing, covering and stuff like that, it's actually so wholesome PLEASE DO IT RAHHHHH
 
 • wanna copy my skin? i don't mind it either, just inflating my ego a bit, cuz it means that ya like my skin so yeahhh
 
 • and finally 'bout chatting with me, i'm okay with just simply saying "hello", complimenting my skin or stuff like "OMG A *insert some media* FAN!!!!" but i'm not open for any longer chats and especially not for making friends, if i see anyone trying to chat about something with me or befriend me, i'm just gonna disappear, and nuh uh, there are no exceptions ;] i just have my reasons, don't take it personally.
+
+• OH AND BTW, if i see you sitting with your friend/friends somewhere in pony town, there's no way i'm gonna respond to anything, i despise friend groups and no force can make me join a conversation with someone's friend group
 
 
 🪷 𝐈𝐍𝐅𝐎 𝐀𝐁𝐎𝐔𝐓 𝐌𝐄!
@@ -25,6 +29,8 @@ i have NO FRICKIN' IDEA how this site works honestly, i just made it for pony to
 • i absolutely ADORE rats, axolotls and any kind of birds but mostly pigeons, also i own two ratties, they're the best frfr
 
 • i kin a whole lot of characters, but my highest kin is Mustache Girl from AHIT, but Mr. Puzzles from SMG4 is next in line
+
+• i have TERRIBLE (like, really terrible and huge) jealousy and attachment issues, so that's why i avoid any kind of chats, just wanna prevent uncomfortable situations 
 
 
 🪷 𝐌𝐄𝐃𝐈𝐀 𝐈 𝐄𝐍𝐉𝐎𝐘
