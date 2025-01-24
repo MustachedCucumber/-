@@ -1,19 +1,16 @@
-# -
-sum basic info ig 
+PLZ READ BEFORE INTERACTING IN PONY TOWN 
 
 SO UH HI HELLO HOWDY!!!!
-i have NO FRICKIN' IDEA how this site works honestly, i just made it for pony town soooo
 
+Please do not start conversations with me on pony town or especially try to befriend me, i have REALLY SERIOUS jealousy & attachment issues, seeing someone i've talked to only like 2-3 times talk to other friends or mention someone else can cause me physical pain, and from my experience, i know that even if i tell someone about my issues and ask them to not mention others when talking to me, it gets totally ignored and it influences me *really badly*, so don't get offended if i won't chat with you, it's for the better, and no, i also won't wanna be your friend if you tell me you won't talk about others, i've been there before and people are just liars. Of course, i'm fine with a simple "hello", complimenting my skin or saying something like "OMG A *insert some cool media* FAN!!", but nothing more.
 
-🪷 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍 𝐈𝐍𝐅𝐎
+🪷 𝐎𝐓𝐇𝐄𝐑 𝐏𝐎𝐍𝐘 𝐓𝐎𝐖𝐍 𝐈𝐍𝐅𝐎
 
 • i'm usually online everyday for a couple of minutes, just wandering around/sitting somewhere, hoping to find someone from my fandoms to boop 'em and compliment their skin
 
 • i'm totally okay with any kind of touching, and by that i mean booping, cuddling, kissing, covering and stuff like that, it's actually so wholesome PLEASE DO IT RAHHHHH
 
 • wanna copy my skin? i don't mind it either, just busting my ego a bit, cuz it means that ya like my skin so yeahhh
-
-• and finally 'bout chatting with me, i'm okay with just simply saying "hello", complimenting my skin or stuff like "OMG A *insert some media* FAN!!!!" but i'm not open for any longer chats and especially not for making friends, if i see anyone trying to chat about something with me or befriend me, i'm just gonna disappear, and nuh uh, there are no exceptions ;] i just have my reasons, don't take it personally.
 
 • OH AND BTW, if i see you sitting with your friend/friends somewhere in pony town, there's no way i'm gonna respond to anything, i despise friend groups and no force can make me join a conversation with someone's friend group
 
