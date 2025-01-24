@@ -27,7 +27,6 @@ Please do not start conversations with me on pony town or especially try to befr
 
 • i kin a whole lot of characters, but my highest kin is Mustache Girl from AHIT, but Mr. Puzzles from SMG4 is next in line
 
-• i have TERRIBLE (like, really terrible and huge) jealousy and attachment issues, so that's why i avoid any kind of chats, just wanna prevent uncomfortable situations 
 
 
 🪷 𝐌𝐄𝐃𝐈𝐀 𝐈 𝐄𝐍𝐉𝐎𝐘
